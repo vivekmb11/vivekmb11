@@ -1,5 +1,5 @@
 # 💫 About Me:
-im B.tech in CS student
+im B.tech CS student
 
 
 ## 🌐 Socials:
